@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Khalid-prog-ai
-- 👀 I’m interested in boxing
+- 👀 I’m interested in programing robots and AI
 - 🌱 I’m currently learning programing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me discord:johnjons_60768
